@@ -2,4 +2,3 @@
 
 🎉 Estudante em cibersegurança
 
-❤️‍🔥 Amo tecnologia
